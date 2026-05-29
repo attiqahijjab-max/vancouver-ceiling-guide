@@ -1,4 +1,5 @@
 # Modern Popcorn Ceiling Removal Ideas for Vancouver Homes
+<img width="1408" height="768" alt="WhatsApp Image 2026-05-29 at 11 18 33 PM" src="https://github.com/user-attachments/assets/de940c52-cc75-40d8-80a5-c7963b7feb52" />
 
 Old popcorn ceilings are still common in many Vancouver homes, especially in older houses and apartments. While they were once popular because they were affordable and easy to install, modern homeowners now prefer smooth and clean ceiling finishes that make rooms look brighter and more stylish.
 
@@ -26,13 +27,22 @@ One of the biggest advantages of smooth ceilings is that they help rooms feel la
 Popular ceiling trends in Vancouver homes now include:
 
 **Bright White Ceiling Finishes**
+
 **Clean white ceilings help reflect light and make rooms appear more spacious.**
+
 **Minimal Interior Styles**
+
 **Simple and smooth designs create a more elegant and modern atmosphere.**
+
 **Modern Lighting Designs**
+
 **LED lights and modern fixtures look much better with smooth ceiling finishes.**
+
 **Clean Painting and Finishing Work**
+
 **Professional finishing gives ceilings a polished and high-quality appearance.**
+<img width="1408" height="768" alt="WhatsApp Image 2026-05-29 at 11 28 23 PM" src="https://github.com/user-attachments/assets/db21cd9d-54c3-4188-91e2-2a9e5679cfad" />
+
 
 # Why Professional Finishing Matters
 
@@ -58,7 +68,11 @@ A smooth ceiling can:
 - **Match modern furniture styles**
 - **Create a more comfortable environment**
 - **Improve the overall interior design**
+
 Even a simple ceiling upgrade can completely refresh the feel of a home.
+
+<img width="1408" height="768" alt="WhatsApp Image 2026-05-29 at 11 24 08 PM" src="https://github.com/user-attachments/assets/8dc50422-ec20-4979-a497-eb8be6b57631" />
+
 
 # Final Thoughts
 
